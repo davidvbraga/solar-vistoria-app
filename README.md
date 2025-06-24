@@ -1,0 +1,1 @@
+# solar-vistoria-app
